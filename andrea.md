@@ -1,4 +1,4 @@
-# 👋 ¡Bienvenida, Andrea!
+# 👋 ¡Hola a todos!
 
 Dicen que Andrea es un nombre que viene del griego y significa "guerrera valiente". 
 No sabemos si eso es cierto, pero lo que sí sabemos es que no es fácil deletrearlo correctamente en WhatsApp cuando acabas de despertarte. 😴
